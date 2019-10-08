@@ -7,7 +7,7 @@ This is a list of some of my favorite music-related related videos on Youtube. I
 
 [Hopeless Wanderer (Official Music Video)](https://www.youtube.com/watch?v=rId6PKlDXeU)
 
-Best known for their roles in Arrested Development, 30 Rock, The Office, and The Last Man on Earth, Mumford and Sons<sup>*</sup> deliver a hilarious performance in this music video for one of their more popular songs.
+Best known for their roles in Arrested Development, SNL, The Office, and The Last Man on Earth, Mumford and Sons<sup>*</sup> deliver a hilarious performance in this music video for one of their more popular songs.
 
 \* Not actually Mumford and Sons
 
