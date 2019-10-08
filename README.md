@@ -9,7 +9,7 @@ This is a list of some of my favorite music-related related videos on Youtube. I
 
 ## Contributing
 
-If you have a video you think belongs here, please open a pull request with a link to the video and a short 2 paragraph description that includes:
+If you have a video you think belongs here, please open a pull request (or email me at [keanan@alphaparticle.com](mailto:keanan@alphaparticle.com)) with a link to the video and a short 2 paragraph description that includes:
   - What's happening in the video
   - Why you think it deserves to be in this list 
 
