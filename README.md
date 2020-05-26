@@ -13,7 +13,7 @@ Best known for their roles in Arrested Development, SNL, The Office, and The Las
 
 [Canadian Brass: Tiny Desk Concert](https://www.youtube.com/watch?v=-l-E3kyNcag)
 
-The premise of NPR's Tiny Desk Concert series is simple: bring a musician or musicians behind a tiny desk to perform of their music in a much more acoustic, intimate setting. Past guests have included everyone from George Clinton & The P-Funk All Stars to Taylor Swift to Yo-Yo Ma, to one of my personal favorites, the Canadian Brass. Usually the artists go behind the scenes and tell some of the stories behind the music that normally wouldn't have come out. I particularly like this performance because I think it's so different from most of the other Tiny Desk performances. And the tuba feature doesn't hurt either.
+The premise of NPR's Tiny Desk Concert series is simple: bring a musician or musicians behind a tiny desk to perform their music in a much more acoustic, intimate setting. Past guests have included everyone from George Clinton & The P-Funk All Stars to Taylor Swift to Yo-Yo Ma, to one of my personal favorites, the Canadian Brass. The artists go behind the scenes and tell some of the stories behind the music that normally wouldn't have come out. I particularly like this performance because I think it's so different from most of the other Tiny Desk performances. And the tuba feature doesn't hurt either.
 
 ---
 
