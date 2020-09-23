@@ -20,7 +20,7 @@ The premise of NPR's Tiny Desk Concert series is simple: bring a musician or mus
 There's a lot to say about this one. The fact that the graphics are synched to a completle custom audio/visual controller, the rhythm needed to keep everything together and the fact that it's not even his song all makes this just one really amazing video. If you're a fan of Avicii, Crash Bandicoot, Mario, impressive percussion, or even just amazing hardware builds, there's something in here for you.
 
 [Pokemon Trainer Battle - Rock Jazz Orchestra Version](https://www.youtube.com/watch?v=BfugR2vLARY)
-This is equal parts nostalgia and awesomeness. This takes the Pokemon Trainer battle music and mashes it up with something that sounds the the soundtrack from The Incredibles and ends up coming out with an amazing result. I would recommend checking out their entire channel if you want some solid nostalgia, but this one takes it because of the orchestration and just sheer depth of the arrangement.
+This is equal parts nostalgia and awesomeness. This takes the Pokemon Trainer battle music and mashes it up with something that sounds the the soundtrack from The Incredibles and ends up coming out with an amazing result. I would recommend checking out their entire channel if you want some classic video game music reimagined, but this one is in my #1 spot because of the orchestration and just sheer depth of the arrangement.
 
 
 ---
