@@ -22,6 +22,14 @@ There's a lot to say about this one. The fact that the graphics are synched to a
 [Pokemon Trainer Battle - Rock Jazz Orchestra Version](https://www.youtube.com/watch?v=BfugR2vLARY)
 This is equal parts nostalgia and awesomeness. This takes the Pokemon Trainer battle music and mashes it up with something that sounds the the soundtrack from The Incredibles and ends up coming out with an amazing result. I would recommend checking out their entire channel if you want some classic video game music reimagined, but this one is in my #1 spot because of the orchestration and just sheer depth of the arrangement.
 
+[Mr. Curiosity - Jason Mraz](https://www.youtube.com/watch?v=ryZeSZEvcck)
+If you've never seen Jason Mraz live, you're hontesly missing out. But this video is the closest you'll get without actually being in the same building. It's just him and a keyboard, despite the middle section where you might be convinced he's hired the sporano from the local opera to help him onstage. The way he goes between falsetto and his regular voice is honeslty insane. He makes it sound so easy and that alone will keep you coming back again and again.
+
+[Imagine - Chris Kläfford](https://www.youtube.com/watch?v=CVO8gjn3dFg)
+I've heard lots of Beatles covers, but none captures the emotion of the lyrics quite like this cover by Chris Kläfford. The raw feeling he puts into the song and the break between his amazingly raspy chest voice and his head voice (which some might call a quasi-yodel) makes this cover for me. This rendition is something I could both have on in the background when I'm working while at the same time being something I could pay complete attention to when I'm all up in my feelings.
+
+
+
 
 ---
 
