@@ -38,8 +38,10 @@ If you've never seen Jason Mraz live, you're hontesly missing out. But this vide
 [Imagine - Chris Kläfford](https://www.youtube.com/watch?v=CVO8gjn3dFg)
 I've heard lots of Beatles covers, but none captures the emotion of the lyrics quite like this cover by Chris Kläfford. The raw feeling he puts into the song and the break between his amazingly raspy chest voice and his head voice (which some might call a quasi-yodel) makes this cover for me. This rendition is something I could both have on in the background when I'm working while at the same time being something I could pay complete attention to when I'm all up in my feelings.
 
+---
 
-
+[Musician Explains Harmony in 5 Levels of Difficulty](https://www.youtube.com/watch?v=eRkgK4jfi6M)
+I love these types of videos because regardless of whether you have any existing knowledge of the concept being explained, you can probably understand the explantion presented to the first couple levels (in this case a 7 year old and a teenager). With this video, I do happen to have a fair bit of knowledge about harmony, but I still feel I took alot away. My favorite part of this was when Jacob was explaining to the teenager that harmony is "about injecting melody with emotion." I also can't even imagine how intimidating explaining harmony to a professional pianist or to Herbie Hancock would be, but I thought it was super interesting how the higer level musician the person was, the more Jacob was able to communicate to them without words. It was super interesting to see amazing musicians using shorthand and just listening to what the other was playing as a way of communication.
 
 ---
 
