@@ -45,6 +45,9 @@ I love these types of videos because regardless of whether you have any existing
 
 ---
 
+[Lin-Manuel Miranda hears Weird Al's "Hamilton Polka" for the first time](https://www.youtube.com/watch?v=G8kIQ9i1bfY)
+This video is a great example of a crossover so niche that maybe only LMM himself can fully appreciate it. It takes all the classic Weird Al tropes and applies them to the Hamilton soundtrack so perfectly that even though I've listened to the Hamilton soundtrack at least 50 times and watched this video almost as much, each time I watch it I discover something new. And I can only imagine what LMM hears as someone who's lived this music for multiple years of his life. And beyond all the depth and musicality, it's just a bop. Listen up.
+
 ## Contributing
 
 If you have a video you think belongs here, please open a pull request (or email me at [keanan@alphaparticle.com](mailto:keanan@alphaparticle.com)) with a link to the video and a short paragraph description that includes:
