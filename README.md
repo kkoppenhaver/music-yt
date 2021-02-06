@@ -26,6 +26,7 @@ There's a lot to say about this one. The fact that the graphics are synched to a
 ---
 
 [Pokemon Trainer Battle - Rock Jazz Orchestra Version](https://www.youtube.com/watch?v=BfugR2vLARY)
+
 This is equal parts nostalgia and awesomeness. This takes the Pokemon Trainer battle music and mashes it up with something that sounds the the soundtrack from The Incredibles and ends up coming out with an amazing result. I would recommend checking out their entire channel if you want some classic video game music reimagined, but this one is in my #1 spot because of the orchestration and just sheer depth of the arrangement.
 
 ---
@@ -35,13 +36,21 @@ If you've never seen Jason Mraz live, you're hontesly missing out. But this vide
 
 ---
 
+[Paul McCartney Carpool Karaoke](https://www.youtube.com/watch?v=QjvzCTqkBDQ)
+
+Whether you like The Beatles or not, this is one of the most wholesome videos you'll watch this year. From Paul and James just messing around, to a true legend going all the way back to his roots, to a [unsuspecting crowd](https://youtu.be/QjvzCTqkBDQ?t=993) getting overwhelmed with Sir Paul McCartney's presence, there's so much to see here. I guarentee this video will have you smiling as you watch or your money back.
+
+---
+
 [Imagine - Chris Kläfford](https://www.youtube.com/watch?v=CVO8gjn3dFg)
 I've heard lots of Beatles covers, but none captures the emotion of the lyrics quite like this cover by Chris Kläfford. The raw feeling he puts into the song and the break between his amazingly raspy chest voice and his head voice (which some might call a quasi-yodel) makes this cover for me. This rendition is something I could both have on in the background when I'm working while at the same time being something I could pay complete attention to when I'm all up in my feelings.
 
 ---
 
 [Musician Explains Harmony in 5 Levels of Difficulty](https://www.youtube.com/watch?v=eRkgK4jfi6M)
-I love these types of videos because regardless of whether you have any existing knowledge of the concept being explained, you can probably understand the explantion presented to the first couple levels (in this case a 7 year old and a teenager). With this video, I do happen to have a fair bit of knowledge about harmony, but I still feel I took alot away. My favorite part of this was when Jacob was explaining to the teenager that harmony is "about injecting melody with emotion." I also can't even imagine how intimidating explaining harmony to a professional pianist or to Herbie Hancock would be, but I thought it was super interesting how the higer level musician the person was, the more Jacob was able to communicate to them without words. It was super interesting to see amazing musicians using shorthand and just listening to what the other was playing as a way of communication.
+I love these types of videos because regardless of whether you have any existing knowledge of the concept being explained, you can probably understand the explantion presented to the first couple levels (in this case a 7 year old and a teenager). With this video, I do happen to have a fair bit of knowledge about harmony, but I still feel I took alot away. My favorite part of this was when Jacob was explaining to the teenager that harmony is "about injecting melody with emotion."
+
+I also can't even imagine how intimidating explaining harmony to a professional pianist or to Herbie Hancock would be, but I thought it was super interesting how the higer level musician the person was, the more Jacob was able to communicate to them without words. It was super interesting to see amazing musicians using shorthand and just listening to what the other was playing as a way of communication.
 
 ---
 
