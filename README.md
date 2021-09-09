@@ -57,6 +57,69 @@ I also can't even imagine how intimidating explaining harmony to a professional 
 [Lin-Manuel Miranda hears Weird Al's "Hamilton Polka" for the first time](https://www.youtube.com/watch?v=G8kIQ9i1bfY)
 This video is a great example of a crossover so niche that maybe only LMM himself can fully appreciate it. It takes all the classic Weird Al tropes and applies them to the Hamilton soundtrack so perfectly that even though I've listened to the Hamilton soundtrack at least 50 times and watched this video almost as much, each time I watch it I discover something new. And I can only imagine what LMM hears as someone who's lived this music for multiple years of his life. And beyond all the depth and musicality, it's just a bop. Listen up.
 
+---
+
+[Ben Folds w/ Orchestra](https://www.youtube.com/watch?v=BytUY_AwTUs)
+
+---
+
+[How sampling transformed music](https://www.youtube.com/watch?v=H3TF-hI7zKc)
+
+---
+
+[Wonder Woman Theme](https://www.youtube.com/watch?v=Z5vQz4Xz6q8)
+
+---
+
+[Creating SNL: The Music Department](https://www.youtube.com/watch?v=7RudKvxUoZs)
+
+---
+
+[I Will Go The Distance (Sam Robson)](https://www.youtube.com/watch?v=0ROfR39TRBQ)
+
+---
+
+[Titanium - Vintage 1940s Jazz Crooner](https://www.youtube.com/watch?v=g3iL596QKII)
+
+---
+
+[Bohmenian Rhapsody in 42 Styles](https://www.youtube.com/watch?v=8ydY8-Uzah8)
+
+---
+
+[Sweet Child of Mine (Scary Pockets)](https://www.youtube.com/watch?v=cl7a9YztLN4)
+
+---
+
+[Layla (Scary Pockets)](https://www.youtube.com/watch?v=GdE75ACTMRY)
+
+---
+
+[Longest Johns Sing Sea of Thieves](https://www.youtube.com/watch?v=rBRuG4GMZ98)
+
+---
+
+[Supermarket Flowers (street peformance)](https://www.youtube.com/watch?v=kOWBQ_iTZwI)
+
+---
+
+[Halleujah (Pentatonix)](https://www.youtube.com/watch?v=LRP8d7hhpoQ)
+
+---
+
+[Kurt Hugo Schneider writing "Señorita" without having heard it](https://www.youtube.com/watch?v=zhh8At3xN6k)
+
+---
+
+[Piano Guys](https://www.youtube.com/watch?v=Cgovv8jWETM)
+
+---
+
+[One of the Original Lip Sync Battles](https://www.dailymotion.com/video/x1573kd)
+
+
+---
+
 ## Contributing
 
 If you have a video you think belongs here, please open a pull request (or email me at [keanan@alphaparticle.com](mailto:keanan@alphaparticle.com)) with a link to the video and a short paragraph description that includes:
