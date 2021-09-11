@@ -117,6 +117,52 @@ This video is a great example of a crossover so niche that maybe only LMM himsel
 
 [One of the Original Lip Sync Battles](https://www.dailymotion.com/video/x1573kd)
 
+---
+
+[Vienna Horns](https://www.youtube.com/watch?v=dRHvQJu6qU8)
+
+---
+
+[Walk Off The Earth](https://www.youtube.com/watch?v=bBBit43FxHs)
+
+---
+
+[Disney Love Medley](https://www.youtube.com/watch?v=zLMeDUBKmBs)
+
+---
+
+[Yo-Yo Ma Tiny Desk](https://www.youtube.com/watch?v=3uiUHvET_jg)
+
+---
+
+[Fly Me To The Moon (with rap verse)](https://www.youtube.com/watch?v=O1puRnV6gwE)
+
+---
+
+[Reharmonizing Hello, Adele](https://www.youtube.com/watch?v=fuqsEl_0nSg)
+
+---
+
+[Neil Patrick Harris](https://www.youtube.com/watch?v=_deqj-O0RUc)
+
+---
+
+[Star Wars Epic Piano](https://www.youtube.com/watch?v=pZAZ2x-KNf0)
+
+---
+
+[Sound of Silence, Live on Conan](https://www.youtube.com/watch?v=Bk7RVw3I8eg)
+
+---
+
+[The Killers live from their bathroom](https://www.youtube.com/watch?v=ZT4h9M49s40)
+
+---
+
+[Into The Unknown (Horns and Band)](https://www.youtube.com/watch?v=ShIoFhwGWTs)
+
+---
+
 
 ---
 
