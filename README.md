@@ -149,6 +149,9 @@ I do think KHS acts more like a stereotypical "youtuber" in this video than he d
 ---
 
 [Reharmonizing Hello, Adele](https://www.youtube.com/watch?v=fuqsEl_0nSg)
+Besides the fact that this is an amazing reimagining of a very popular song, Adam Neely provides justifications for all of his arranging choices. Because of that, this is really an amazing BTS look at the process of arranging.
+
+"F does not lay as low on a five string guitar as Db does." This is the kind of arranging insight that you don't get when you just hear the final version on Spotify. And that's just the starting point of what you'll get from Adam. He not only explains the "what" but also the "why". And if you're into music even a little, you'll get a ton out of this video and learn more about how musicians support and design around each other than you much normally would.
 
 ---
 
