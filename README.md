@@ -60,6 +60,7 @@ This video is a great example of a crossover so niche that maybe only LMM himsel
 ---
 
 [Ben Folds w/ Orchestra](https://www.youtube.com/watch?v=BytUY_AwTUs)
+This is one of those videos that's amazing just on face value, but even more of an amazing performance from the orchestra even than Ben. Knowing enough to play off your fellow musicians, hear the key and notes that he's just throwing at you by ear and make it sound amazing are all things that are truly the mark of a professional musician. And the fact that Ben can hear all this in his head even as he's dictating it, makes it that much better. Definitely worth a watch.
 
 ---
 
