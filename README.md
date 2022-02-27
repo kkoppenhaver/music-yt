@@ -115,6 +115,8 @@ What happens when you shift a well-known riff by a half beat? Scary Pockets sets
 [Kurt Hugo Schneider writing "Señorita" without having heard it](https://www.youtube.com/watch?v=zhh8At3xN6k)
 Besides the concept being really solid (looking at only the lyrics and trying to write your own version of the song), KHS was one of the first "music industry" people I started watching on YouTube. He's super talented and this video shows him putting his own spin on things once again. That in addition to the talented musicians he brings in (who take his direction and make masterful sounds out of it) to help him fill out the arrangement makes this one not to miss.
 
+I do think KHS acts more like a stereotypical "youtuber" in this video than he did when I first discovered him, and I can't tell if that just makes me an old curmudgeon, but it's a bit more than I'm used to from him.
+
 ---
 
 [Piano Guys](https://www.youtube.com/watch?v=Cgovv8jWETM)
