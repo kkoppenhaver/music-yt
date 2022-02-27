@@ -88,6 +88,7 @@ Bo Burnham has gotten lots of press recently for his recent special that he reco
 ---
 
 [Bohmenian Rhapsody in 42 Styles](https://www.youtube.com/watch?v=8ydY8-Uzah8)
+The fact that you have to be "fluent" in 42 styles of music to even make a video like this is amazing. After you get over that and start listening, you realize that Anthony Vincent has talent that spans decades and eras. The ability to imitate musicians from Frank Sinatra to Skrillex to the King of Ragtime Scott Joplin requires not only a vast musical knowledge, but also an appreciation for the art that few possess. This in and of itself is enough reason to watch this video, but the fact that he, in a span of 10 seconds, ties Kenny G to Bobby McPherin to Star Wars, all while still covering someone else's song, should leave you curious enough to check it out.
 
 ---
 
