@@ -96,6 +96,7 @@ Bo Burnham has gotten lots of press recently for his recent special that he reco
 ---
 
 [Layla (Scary Pockets)](https://www.youtube.com/watch?v=GdE75ACTMRY)
+What happens when you shift a well-known riff by a half beat? Scary Pockets sets out to figure out just that in this video. A funk cover of an Derek and The Dominos classic that weaves rehearsal footage in with live performance footage will have your toe tapping the whole way through.
 
 ---
 
