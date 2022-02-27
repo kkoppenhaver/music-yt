@@ -65,10 +65,12 @@ This is one of those videos that's amazing just on face value, but even more of 
 ---
 
 [How sampling transformed music](https://www.youtube.com/watch?v=H3TF-hI7zKc)
+Many people only know Mark Ronson from his work with Bruno Mars, but this talk from 2014 helps to show himself off in his own right. It's a live look into much of what happens in the recording studio and how samples and pieces of other music shape much of the new music we hear every day. He starts off remixing the TED theme, right onstage at a TED talk and then goes from there.
 
 ---
 
 [Wonder Woman Theme](https://www.youtube.com/watch?v=Z5vQz4Xz6q8)
+Because I'm a music nerd, I've always loved videos like this especially. It not only explores _why_ the things we listen to are the way we are, offering insight into the composition process and such, but it also attempts to explain why it makes us feel the way we feel. You just might never listen to a movie soundtrack the same way again after watching this video.
 
 ---
 
