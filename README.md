@@ -94,6 +94,10 @@ The fact that you have to be "fluent" in 42 styles of music to even make a video
 
 [Sweet Child of Mine (Scary Pockets)](https://www.youtube.com/watch?v=cl7a9YztLN4)
 
+This was the first video I discovered of Scary Pockets and I don't quite know how to describe what they do. I'll say this. I flew from Chicago to L.A. to see them in concert.
+
+They have a way of reimagining music that both cuts to the soul of the song and also arranges it in a way that hasn't been done before. Which, in this day and age, is amazing. Most every cover I hear them put out makes me think about the source material differently, even if they're covering a song I've heard one hundred times. And that's truly amazing.
+
 ---
 
 [Layla (Scary Pockets)](https://www.youtube.com/watch?v=GdE75ACTMRY)
@@ -141,6 +145,10 @@ I do think KHS acts more like a stereotypical "youtuber" in this video than he d
 ---
 
 [Piano Guys](https://www.youtube.com/watch?v=Cgovv8jWETM)
+
+I've been following the Piano Guys for years and I've been constantly impressed with how they've been able to push the envelope, both cinematically and musically.
+
+This arrangement is not only beautiful to look at, it's a freaking bop. You can't help but bob your head to this mashup and compilation of songs that have clearly inspired the Piano Guys over the years.
 
 ---
 
@@ -238,7 +246,7 @@ Honestly, I love these sorts of arrangements because they get to the soul of the
 
 ## Contributing
 
-If you have a video you think belongs here, please open a pull request (or email me at [keanan@alphaparticle.com](mailto:keanan@alphaparticle.com)) with a link to the video and a short paragraph description that includes:
+If you have a video you think belongs here, please open a pull request (or email me at [k.koppenhaver@gmail.com](mailto:k.koppenhaver@gmail.com)) with a link to the video and a short paragraph description that includes:
   - What's happening in the video
   - Why you think it deserves to be in this list 
 
