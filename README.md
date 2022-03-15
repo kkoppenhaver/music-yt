@@ -125,6 +125,12 @@ It's ok to cry. Please do. I have. Many many times.
 
 [Halleujah (Pentatonix)](https://www.youtube.com/watch?v=LRP8d7hhpoQ)
 
+There have been many covers of this particular song. But I can't think of a single one that does the original anywhere close to justice as this one.
+
+Pentatonix may have started off as a bunch of high school choir kids, but they've evolved into one of the top vocal groups of our time and this cover cements them in one of those top spots.
+
+If you've listened to them since their early days, you can hear how they've each evolved, individually and as a group. And the fact that their voices are best heard together rather than separate means they'll be a musical force for years to come.
+
 ---
 
 [Kurt Hugo Schneider writing "Señorita" without having heard it](https://www.youtube.com/watch?v=zhh8At3xN6k)
@@ -147,6 +153,12 @@ I do think KHS acts more like a stereotypical "youtuber" in this video than he d
 ---
 
 [Walk Off The Earth](https://www.youtube.com/watch?v=bBBit43FxHs)
+
+It's hard to describe just what this video is. But really what it is is four people doing what they love through music. And that's amazing.
+
+As if that wasn't enough, everyone who has a vocal part has an amazing voice. If you can accept that, tune your ears to 1:04 where Sarah absolutely takes over. She's the perfect combination of melody and gravelly texture that makes it impossible to listen to anything else.
+
+Outside of that, the entire group knows how to fit together and their arrangements are always amazing. If ASMR was imagined by a music major, they would have landed on WOTE, so give them a listen.
 
 ---
 
@@ -210,6 +222,10 @@ Put simply, it's four and a half minutes that will draw you in and let you go ap
 ---
 
 [The Killers live from their bathroom](https://www.youtube.com/watch?v=ZT4h9M49s40)
+
+This is an amazing example of "doing more with less". These are artists that have played stadiums and more, but they sound just as home in their bathroom as they do belting into a microhphone for thousands of people.
+
+Honestly, I love these sorts of arrangements because they get to the soul of the music, but this version dives deep into the music in a way that few recordings do.
 
 ---
 
