@@ -103,6 +103,10 @@ What happens when you shift a well-known riff by a half beat? Scary Pockets sets
 
 [Longest Johns Sing Sea of Thieves](https://www.youtube.com/watch?v=rBRuG4GMZ98)
 
+In one of the most wholesome online video game interactions I've ever seen, The Longest Johns take their vocal talents into a multiplayer online game and spark joy by singing sea shanties to fellow sailors. Long story short, if you hear "Would you like me to sing you a song?" in a video game chat, say yes.
+
+The harmonies that will likely grace your ears can only be described as downright nautical and you don't have to be rum drunk to appreciate the hearty "hugh" that preceds them diving wholehearteadly back into their tune. They may not be the best sailors (and that much is obvious in-game), but as long as crews have an ear for music, they'll never be out of a job.
+
 ---
 
 [Supermarket Flowers (street peformance)](https://www.youtube.com/watch?v=kOWBQ_iTZwI)
@@ -166,6 +170,12 @@ Also, the offbeat triplets on the drums that eventually lead to the sax solo are
 ---
 
 [Sound of Silence, Live on Conan](https://www.youtube.com/watch?v=Bk7RVw3I8eg)
+
+At one point the most streamed clip from Conan's show, Disturbed puts on a cover performance that is simply unmatched. When you have the original artists of a song calling you the next day to tell you that you are their favorite cover of their song, you know you've done something right. And to bring that level of musicianship to a national late night audience is a rare feat indeed.
+
+There's something about the quality of the vocals in this cover that will cut you to your very core. The perfect mix of light instrumentals and gravely "metal" vocals is why I think more metal groups should do covers like this (shoutout [Avenged Sevenfold](https://www.youtube.com/watch?v=mzX0rhF8buo)).
+
+Put simply, it's four and a half minutes that will draw you in and let you go appreciating silence just a bit differently.
 
 ---
 
