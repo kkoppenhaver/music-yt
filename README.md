@@ -185,6 +185,14 @@ Also, the offbeat triplets on the drums that eventually lead to the sax solo are
 
 [Neil Patrick Harris](https://www.youtube.com/watch?v=_deqj-O0RUc)
 
+If you've never watched the Tony Awards, I would say you're in the mainstream. But if you're a theater nerd, you know how important this night is. And how important the opening is.
+
+Neil Patrick Harris succeeds in bring so many of the Broadway musical tropes into the mainstream. From the moment the gradually ascending chords kick in, you'll feel at home. And the fact that literally every musical of the season is name checked while still sticking to the style of a Broadway score is impressieve enough. 
+
+But then NPH shows off his magic skills, appears at the back of the theater and then subtly shades Les Mis.
+
+What more could you want?
+
 ---
 
 [Star Wars Epic Piano](https://www.youtube.com/watch?v=pZAZ2x-KNf0)
