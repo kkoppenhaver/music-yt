@@ -111,6 +111,16 @@ The harmonies that will likely grace your ears can only be described as downrigh
 
 [Supermarket Flowers (street peformance)](https://www.youtube.com/watch?v=kOWBQ_iTZwI)
 
+I like covers. A lot. But that's not enough to explain the effect that this cover by Allie Sherlock has on me. Her voice perfectly combines the sentimentality that the songs lyrics convey and the innocence of a child singing at a relatives funeral who doesn't quite understand the weight of what they're giving.
+
+I'm not overstating when I say this is my favorite video on this entire list.
+
+Please, just listen to it. If you don't listen to another song on this playlist, just listen to the brief pause at 2:22 and tell me it doesn't make you think of a relative of yours that you wish you could have just one more conversation with.
+
+Music is a medium that can express so many aspects of the human condition at once and this is truly an example of this. Stop reading me trying to explain it. Listen. Full volume.
+
+It's ok to cry. Please do. I have. Many many times.
+
 ---
 
 [Halleujah (Pentatonix)](https://www.youtube.com/watch?v=LRP8d7hhpoQ)
@@ -146,14 +156,26 @@ I do think KHS acts more like a stereotypical "youtuber" in this video than he d
 
 [Yo-Yo Ma Tiny Desk](https://www.youtube.com/watch?v=3uiUHvET_jg)
 
+NPR's Tiny Desk is a series unlike any other. The fact that they're a proving ground for new artists in a way that few venues are is no accident. And the fact that someone as established as Yo-Yo Ma can come into this space and absolutely take all the air out of the room in the most effortless way is a testament to his musicianship.
+
+"Believe it or not, this was the very first piece of music I started on the cello when I was four years old, one measure at a time..." He goes on to give us a behind the scenes glimpse into his multi-decade music career and how his music has given moments of his life a very special meaning.
+
+He puts a feeling into his instrument unlike any I've ever heard. He forces you to pay attention and to interpret his feelings through his playing in a way that is wholly unique.
+
+If you've ever wanted to be in Yo-Yo Ma's living room, this is probably the closest you'll ever get. And that's a place you very much want to be.
+
 ---
 
 [Fly Me To The Moon (with rap verse)](https://www.youtube.com/watch?v=O1puRnV6gwE)
 
+This is the video that caused him to "blow up". If you never thought you'd be into astronomy rap, give this one a listen. Every line is better than the last, and even more than that, the rhythm guitar that leads into the hook is a bop.
+
+This video truly shows his talent from start to finish and I hope to see him selling out arenas one day soon.
+
 ---
 
 [Reharmonizing Hello, Adele](https://www.youtube.com/watch?v=fuqsEl_0nSg)
-Besides the fact that this is an amazing reimagining of a very popular song, Adam Neely provides justifications for all of his arranging choices. Because of that, this is really an amazing BTS look at the process of arranging.
+Besides the fact that this is an amazing reimagining of a very popular song, Adam Neely provides justifications for all of his arranging choices. Because of that, this is really an amazing behind the scenes look at the process of arranging.
 
 "F does not lay as low on a five string guitar as Db does." This is the kind of arranging insight that you don't get when you just hear the final version on Spotify. And that's just the starting point of what you'll get from Adam. He not only explains the "what" but also the "why". And if you're into music even a little, you'll get a ton out of this video and learn more about how musicians support and design around each other than you much normally would.
 
