@@ -42,7 +42,7 @@ Whether you like The Beatles or not, this is one of the most wholesome videos yo
 
 ---
 
-[Imagine - Chris Kläfford](https://www.youtube.com/watch?v=CVO8gjn3dFg)
+[Imagine - Chris Kläfford](https://www.youtube.com/watch?v=YdxdpRZgfT4)
 I've heard lots of Beatles covers, but none captures the emotion of the lyrics quite like this cover by Chris Kläfford. The raw feeling he puts into the song and the break between his amazingly raspy chest voice and his head voice (which some might call a quasi-yodel) makes this cover for me. This rendition is something I could both have on in the background when I'm working while at the same time being something I could pay complete attention to when I'm all up in my feelings.
 
 ---
