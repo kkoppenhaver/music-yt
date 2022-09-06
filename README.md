@@ -74,10 +74,6 @@ Because I'm a music nerd, I've always loved videos like this especially. It not 
 
 ---
 
-[Creating SNL: The Music Department](https://www.youtube.com/watch?v=7RudKvxUoZs)
-
----
-
 [I Will Go The Distance (Sam Robson)](https://www.youtube.com/watch?v=0ROfR39TRBQ)
 Bo Burnham has gotten lots of press recently for his recent special that he recorded all by himself, but Sam Robson has been doing this sort of thing for years: arranging and producing these amazingly intricate acapella arrangements. And "I Will Go The Distance" is no exception. Outside of being musically amazing, the visuals here leave you wondering where to look as he shows each and every one of the singing lines in a separate pane of video and truly lets you see how the piece comes together.
 
