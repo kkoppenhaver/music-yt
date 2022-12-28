@@ -1,3 +1,8 @@
+# No longer maintained. Please take a look at [the new dedicated URL](https://www.keanankoppenhaver.com/my-favorite-music-related-youtube-videos/) for this list.
+
+
+
+
 # MusicYT
 This is a list of some of my favorite music-related related videos on Youtube. If a video is on this list, it either taught me something about music, just made me smile, or in the best cases, both. If you'd like to suggest a video that you think belongs on this list, read the Contributing section below. Happy listening!
 
